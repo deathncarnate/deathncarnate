@@ -1,16 +1,13 @@
-## Hi there 👋
+I'm not about to bother with this so
 
-<!--
-**deathncarnate/deathncarnate** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can sit next to me or something ingame I won't instantly kill you I'm surprisingly c+h friendly to some degree.
+(I say to some degree because if you just stay awkward and quiet I'm gonna get up and leave lmao fuck you)
+And if it seems like I am offtab you can whisper.
 
-Here are some ideas to get you started:
+also for status shit
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+🟢 - yeah I'm definitely there and you can bother me
+
+🌙 - offtab like usual most likely but I'll prob see the whispers
+
+💬 - if I use lf chat someone must've replaced my ass that can't be me
