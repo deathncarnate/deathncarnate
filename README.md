@@ -2,7 +2,7 @@ I'm not about to bother with this so
 
 You can sit next to me or something ingame I won't instantly kill you I'm surprisingly c+h friendly to some degree.
 (I say to some degree because if you just stay awkward and quiet I'm gonna get up and leave lmao fuck you)
-And if it seems like I am offtab you can whisper.
+And if it seems like I am offtab you can whisper. But I'm mostly actually there and wouldn't mind if you interacted
 
 also for status shit
 
