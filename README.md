@@ -10,4 +10,6 @@ also for status shit
 
 🌙 - offtab like usual most likely but I'll prob see the whispers
 
+⛔️ - Don't talk to me unless I talk to you. Likely busy with a friend when I have this on
+
 💬 - if I use lf chat someone must've replaced my ass that can't be me
